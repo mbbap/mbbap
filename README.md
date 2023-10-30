@@ -1,16 +1,16 @@
-### Hi there 👋
+oi tudo esse e meu perfil
+meu nome e mbbape (Miguel)
+jogo no psg
+mais quero ir pro real madrid
+ja ganhei copa
+meu pai finalmete demitui o neymar e o messi
+sou aluno do edutech
+estou fazendo um trabalho
 
-<!--
-**mbbap/mbbap** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+miguel.carvalho.antunes@escola.pr.gov.br
